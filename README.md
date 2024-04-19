@@ -1,1 +1,1 @@
-This is my institure verified resume. 
+This is my institute verified resume. 
